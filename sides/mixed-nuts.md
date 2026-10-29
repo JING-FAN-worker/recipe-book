@@ -10,5 +10,5 @@
 
 ## Instructions
 
-- Get the nuts
-- Mix the nuts
+- Place the almonds, cashews, walnuts, and Brazil nuts in a bowl.
+- Stir until the nuts are evenly mixed.
